@@ -1,0 +1,3 @@
+# 3-projektas-Trend-Rosvaldas
+
+"Baigtas" darbas, kol kas...
